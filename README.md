@@ -4,5 +4,5 @@
 👯 I’m looking to collaborate with content creators.<br>
 🥅 2021 Goals: Doing more technical projects and Contribution to Open Source.<br>
 ⚡ Fun fact: I love to draw sketches and painting.<br>
-🚀 CTO <br>
+🚀
 
